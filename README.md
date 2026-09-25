@@ -1,61 +1,38 @@
-## hi. intro !
-. TRANS . FTM (aka. female 2 male)
+## 𝐼ntro .ᐟ
 
-✎ 𝚙𝚛𝚎𝚏𝚎𝚛𝚛𝚎𝚍 𝚙𝚛𝚗𝚜. ╎ ➣ can use any pronouns but he/him is preferred . 𝄞
+I AM STARZ. you can also call me soda if you'd like!
 
-. i'm a minor (not revealing my age 4 obvious reasons) .
+˙✶༘ ╰┈➤ 𝐼 use he/they/it .
 
-. more about me here . ! ^_^
+ i am also trans! ^q^
 
-## ꨄ . 𝚖𝚢 𝚖𝚊𝚒𝚗 𝚏𝚊𝚗𝚍𝚘𝚖𝚜 𝚕𝚒𝚜𝚝𝚎𝚍 𝚋𝚎𝚕𝚘𝚠 . ✧˙⊹Ꮺ . 𖤓 
+## 𐔌 𝙼𝙰𝙸𝙽 𝙵𝙰𝙽𝙳𝙾𝙼𝚂: 𐦯 ˙⌑  .𖥔
 
-- block tales .
+- ᑲlock tales
 
-- noob mayhem .
+- ᥒoob mayhem
 
-- die of death .
+- ძie of death
 
-- vocaloid .
+- ᥎ocaloid
 
-- deltarune .
+- ძeltarune
 
-- undertale . ೄྀ¤ ⌫
+- ᥙndertale
+
+- 𝗍ouhou (my most recent fandom i joined)
+
+- roblox admins (i don't int w/ the community).
  
-⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅
+   ⏝⏝⏝⏝⏝
 
-## ˙ ➥ ⍴ᥣᥱᥲsᥱ ძᥒі і𝖿 ᥡ᥆ᥙ'rᥱ ᥲ:
-- proshipper .
+## 𝓜y DNᏆ lᎥst. ᰔ
 
-- darkshipper .
-
-- monstermagic shipper .
-
-- racist .
-
-- pred .
-
-- homophobe .
-
-- transphobe .
-
-- xenophobe .
-
-- lgbtq+ hater
-
-- comshipper (heavily depends) .
-
- 
-## - ˙ ➥ 𝖿ᥙᥒ 𝖿ᥲᥴ𝗍s ᥲᑲ𝗍. mᥱ !
-
-- 1 . i support yumeshippers as long as it isn't problematic .
-- 2 . i freely c+h in pony town .
-- 3 . i'm aromantic .
-- 4 . i larp so many fandoms i forgot most of them . . .
-- 5 . i like 2 play pony town often !!
-
- ≪ °❈° ≫≪ °❈° ≫≪ °❈° ≫≪ °❈° ≫
- 
- that's it for the intro . bye ! ^_^
+- proshippers & darkshippers.
+- predators/pedophiles. hvy dni.
+- monstermagic shippers. hvy dni too.
+- fans from any problematic media/fandoms.
+- ignorant people.
 
 <!--
 **cutie-mew-mew-magic/cutie-mew-mew-magic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
